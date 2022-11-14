@@ -4,6 +4,6 @@ Gabriel Tarelli.
 
 Braian Almirón.
 
-Rolando Lizaraso.
+Rolando Lizaraso, 20, Cordoba
 
 Carlos Guillen.
