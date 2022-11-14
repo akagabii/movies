@@ -4,6 +4,6 @@ Gabriel Tarelli. - 19 - Ensenada
 
 Braian Almirón. 26 - Lanús
 
-Rolando Lizaraso.
+Rolando Lizaraso, 20, Cordoba
 
-Carlos Guillen.
+Carlos Guillen - 19 años - Buenos Aires
